@@ -3,9 +3,8 @@
 
 
 - 🌱 I’m currently learning software engineering
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with contributions on exercises
-- 💬 Ask me about ...
+- 👯 I’m looking to collaborate on exercise and works
+- 💬 Ask me about anything 
 - 📫 How to reach me (akinnusivictor098@gmail.com)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: a basketball 🏀 player and volleyball 🏐 player ,music lover
