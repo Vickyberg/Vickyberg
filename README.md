@@ -3,7 +3,7 @@
 
 
 - 🌱 I’m currently learning software engineering
-- 👯 I’m looking to collaborate on exercise and works
+- 👯 I’m looking to collaborate on exercise and projects
 - 💬 Ask me about anything 
 - 📫 How to reach me (akinnusivictor098@gmail.com)
 - ⚡ Fun fact: a basketball 🏀 player and volleyball 🏐 player ,music lover
