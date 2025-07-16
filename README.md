@@ -6,5 +6,6 @@
 - 👯 I’m looking to collaborate on projects
 - 💬 Ask me about anything 
 - 📫 How to reach me (akinnusivictor098@gmail.com)
+- 🕸  https://www.linkedin.com/in/victor-akinnusi
 - ⚡ Fun : a basketball 🏀 player and volleyball 🏐 player ,music lover
 - 👨‍🔬 Fun Fact : A great thing comes with a great responsibility
